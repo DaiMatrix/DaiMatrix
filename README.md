@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello! I'm Dai!! 23, any pronouns :3 This is a temporary placeholder until I have the energy to make something look good lol
 
 <!--
 **DaiMatrix/DaiMatrix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
