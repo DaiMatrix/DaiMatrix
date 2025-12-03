@@ -1,7 +1,9 @@
 ## Hello! I'm Dai!! 23, any pronouns :3 This is a temporary placeholder until I have the energy to make something look good lol
 
+
 <!--
-**DaiMatrix/DaiMatrix** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**DaiMatrix/DaiMatrix** is a ✨ _special_ ✨ <img width="1920" height="1080" alt="hang out session" src="https://github.com/user-attachments/assets/1304756f-90dc-4e5a-aa3c-ae0e55c1badb" />
+repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
