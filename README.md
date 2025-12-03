@@ -1,4 +1,4 @@
-## Hello! I'm Dai!! 23, any pronouns :3 This is a temporary placeholder until I have the energy to make something look good lol
+## Hello! I'm Dai!! 23, any pronouns :3 This is a temporary place holder until I have the energy to make something look good. Enjoy these silly vrchat pics!!
 <img width="1920" height="1080" alt="hang out session" src="https://github.com/user-attachments/assets/b56fe2c9-56cd-47cd-a991-4777719a041c" />
 <img width="1920" height="1080" alt="VRChat_2025-12-02_01-52-41 488_1920x1080" src="https://github.com/user-attachments/assets/e2011257-8d09-46f0-9d30-f67d92b40765" />
 (my friends and i hanging on vrchat hehe ^^)
