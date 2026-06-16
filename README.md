@@ -1,7 +1,10 @@
 ## Hello! I'm Dai!! 24, any pronouns :3 This is a temporary place holder until I have the energy to make something look good. Check out my strawpage to see my chaotic interest board!! And here's some silly vrchat pics!!
-<img width="1920" height="1080" alt="hang out session" src="https://github.com/user-attachments/assets/b56fe2c9-56cd-47cd-a991-4777719a041c" />
-<img width="1920" height="1080" alt="VRChat_2025-12-02_01-52-41 488_1920x1080" src="https://github.com/user-attachments/assets/e2011257-8d09-46f0-9d30-f67d92b40765" />
-(my friends and i hanging on vrchat hehe ^^)
+
+<img width="1920" height="1080" alt="sis and me" src="https://github.com/user-attachments/assets/88eac7dc-82cf-42d0-b2ed-c7d77d8ec239" />
+<img width="1920" height="1080" alt="sora seph and xion" src="https://github.com/user-attachments/assets/8fc612a0-a2ac-436f-9bbb-8dfc86607531" />
+<img width="1920" height="1080" alt="bruhhhhhhhh gang" src="https://github.com/user-attachments/assets/b51d3173-01a5-4838-8b10-c0f83c4352d9" />
+
+(my friends and i hanging on vrchat and being insane hehe ^^)
 
 <!--
 **DaiMatrix/DaiMatrix** is a ✨ _special_ ✨ <img width="1920" height="1080" alt="hang out session" src="https://github.com/user-attachments/assets/1304756f-90dc-4e5a-aa3c-ae0e55c1badb" />
