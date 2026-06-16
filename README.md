@@ -1,4 +1,5 @@
-## Hello! I'm Dai!! 24, any pronouns :3 This is a temporary place holder until I have the energy to make something look good. Check out my strawpage to see my chaotic interest board!! And here's some silly vrchat pics!!
+## Hello! I'm Dai, Sora or Link!! 24, any pronouns | 15/4/26 my love <3 |
+This is a temporary place holder until I have the energy to make something look good. Check out my strawpage to see my chaotic interest board!! And here's some silly vrchat pics!!
 
 <img width="1920" height="1080" alt="sis and me" src="https://github.com/user-attachments/assets/88eac7dc-82cf-42d0-b2ed-c7d77d8ec239" />
 <img width="1920" height="1080" alt="sora seph and xion" src="https://github.com/user-attachments/assets/8fc612a0-a2ac-436f-9bbb-8dfc86607531" />
