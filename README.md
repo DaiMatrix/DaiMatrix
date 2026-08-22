@@ -3,9 +3,11 @@ This is a temporary place holder until I have the energy to make something look 
 
 <img width="1920" height="1080" alt="sis and me" src="https://github.com/user-attachments/assets/88eac7dc-82cf-42d0-b2ed-c7d77d8ec239" />
 <img width="1920" height="1080" alt="sora seph and xion" src="https://github.com/user-attachments/assets/8fc612a0-a2ac-436f-9bbb-8dfc86607531" />
-<img width="1920" height="1080" alt="bruhhhhhhhh gang" src="https://github.com/user-attachments/assets/b51d3173-01a5-4838-8b10-c0f83c4352d9" />
+<img width="1920" height="1080" alt="bro what" src="https://github.com/user-attachments/assets/34589d2f-5c8f-44f5-93ef-a0464b8e6d4d" />
+<img width="1920" height="1080" alt="teehee" src="https://github.com/user-attachments/assets/3f85bd3e-6e43-45c2-9e5e-a6e64e624f4f" />
+<img width="1920" height="1080" alt="gf and me" src="https://github.com/user-attachments/assets/40c2e2ba-c0f1-4ba7-93fd-0115349ab711" />
 
-(my friends and i hanging on vrchat and being insane hehe ^^)
+(my faves and i hanging on vrchat and being insane hehe ^^)
 
 <!--
 **DaiMatrix/DaiMatrix** is a ✨ _special_ ✨ <img width="1920" height="1080" alt="hang out session" src="https://github.com/user-attachments/assets/1304756f-90dc-4e5a-aa3c-ae0e55c1badb" />
