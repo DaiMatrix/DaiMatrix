@@ -1,4 +1,3 @@
-<img width="1920" height="1080" alt="VRChat_2026-09-01_23-07-24 334_1920x1080" src="https://github.com/user-attachments/assets/fb4e12ae-8baa-4586-b8a1-2709b53e5734" />
 ## Hello! I'm Dai, Sora or Link!! 24, any pronouns | 14/5/26 my love <3 |
 This is a temporary place holder until I have the energy to make something look good. Check out my strawpage to see my chaotic interest board!! Below are some silly vrchat pics!!
 
