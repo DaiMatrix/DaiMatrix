@@ -1,3 +1,4 @@
+![Uploading usagi and jodio.png…]()
 ## Hello! I'm Dai, Sora or Link!! 24, any pronouns | 14/5/26 my love <3 |
 This is a temporary place holder until I have the energy to make something look good. Check out my strawpage to see my chaotic interest board!! Below are some silly vrchat pics!!
 
