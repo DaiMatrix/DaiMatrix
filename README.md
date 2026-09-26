@@ -6,6 +6,7 @@ This is a temporary place holder until I have the energy to make something look 
 <img width="1920" height="1080" alt="bro what" src="https://github.com/user-attachments/assets/34589d2f-5c8f-44f5-93ef-a0464b8e6d4d" />
 <img width="1920" height="1080" alt="teehee" src="https://github.com/user-attachments/assets/3f85bd3e-6e43-45c2-9e5e-a6e64e624f4f" />
 <img width="1920" height="1080" alt="gf and me" src="https://github.com/user-attachments/assets/40c2e2ba-c0f1-4ba7-93fd-0115349ab711" />
+<img width="1920" height="1080" alt="usagi and jodio" src="https://github.com/user-attachments/assets/6668d37d-f3ac-451a-8525-062e424b9e5d" />
 
 (my faves and i hanging on vrchat and being insane hehe ^^)
 
